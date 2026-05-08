@@ -1,4 +1,4 @@
-
+Experience pressure like never before with top Script for pressure, the #1 Script. Includes anti-ban and auto-sell for unbeatable performance.
 
 
 
